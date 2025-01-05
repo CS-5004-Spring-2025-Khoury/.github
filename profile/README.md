@@ -5,7 +5,7 @@
 # Instructor Information<br/>
 **Instructor:** Aida Sharif Rohani (please call me Aida!)<br/>
 **Contact:** aida.sharifrohani@northeastern.edu or via Teams<br/>
-**Class Location:** TBD <br/>
-**Recitation Location:** TBD <br/>
+**Class Location:** Please check Canvas! <br/>
+**Recitation Location:** Please check Canvas! <br/>
 
  
